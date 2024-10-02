@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning IT&DS
 - 📫 How to reach me in your dream
 - 😄 Pronouns: Daow
-- ⚡ Fun fact: eat everything
+- ⚡ Fun fact: i eat everything
 
 ![image](https://github.com/user-attachments/assets/9d29cfea-3ce0-487d-a97d-843ab42de245)
 
